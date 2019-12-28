@@ -1,1 +1,1 @@
-# My-Study-Of-Statistics-
+# My-Study-Of-Statistics
